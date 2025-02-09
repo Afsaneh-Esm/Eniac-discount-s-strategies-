@@ -1,1 +1,0 @@
-# Eniac-discount-s-strategies-
